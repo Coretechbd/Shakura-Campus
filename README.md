@@ -1,2 +1,0 @@
-# Shakura-Campus
-Cozy 
